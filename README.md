@@ -1,2 +1,0 @@
-# soulfulislam
-Dawah and Education
